@@ -1,4 +1,4 @@
-
+new natural disaster survival Script is the best natural disaster survival Script, featuring auto-sell and auto-upgrade. Safe and powerful for all
 
 
 
